@@ -1,4 +1,4 @@
-# [瑪拉基書](https://www.bible.com/zh-CN/bible/48/39.1.CUNPSS)
+# [瑪拉基書](https://www.bible.com/zh-CN/bible/48/mal.1.CUNPSS)
 #### [1](https://www.bible.com/zh-CN/bible/48/mal.1.CUNPSS)
   * 耶和华爱以色列
   * 斥责祭司
